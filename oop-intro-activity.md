@@ -1,5 +1,5 @@
 # CLASS
-Name of class - *_Sneakers_*
+Name of class - *_Sneaker_*
 
 # Properties
 - Property 1 - _Brand_
