@@ -16,4 +16,4 @@ _Indie and Rock_
 ---
 # Miss ko na siya _HAHAHA_
 
-![Alt text](https://th.bing.com/th/id/R.a61508872097523e1bba913638363571?rik=1VdiXiNZXNTjgA&riu=http%3a%2f%2f1.bp.blogspot.com%2f-21fVIVrAj4A%2fTrqC3J_HcPI%2fAAAAAAAAAFA%2fI4FTI8inqAg%2fs1600%2fBanana.png&ehk=rLKb5bTBUhCT2b5oY4nxy8wfP0w3y4N%2fPqA9aL1hZ0E%3d&risl=1&pid=ImgRaw&r=0)
+![Alt text](https://i.pinimg.com/originals/e8/8b/14/e88b14de80c0ad5c71c5a342b7f59e6f.jpg)
