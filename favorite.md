@@ -14,6 +14,6 @@ _Minecraft_
 _Indie and Rock_
 
 ---
-# Miss ko na siya _HAHAHA_
+# Ang kati _HAHAHA_
 
 ![Alt text](https://i.pinimg.com/originals/e8/8b/14/e88b14de80c0ad5c71c5a342b7f59e6f.jpg)
