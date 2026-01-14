@@ -1,14 +1,14 @@
-# Favorite 
+# *Favorite* 
 ---
 ### food
- Pizza
+_Pizza_
 ### Friend
-Baobao
+_Baobao_
 ### Fruit
-Dragon Fruit
+_Dragon Fruit_
 ### Place
-Baywalk
+_Baywalk_
 ### Game
-Minecraft
+_Minecraft_
 ### Music
-Indie and Rock
+_Indie and Rock_
