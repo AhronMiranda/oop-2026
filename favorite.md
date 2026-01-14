@@ -1,6 +1,6 @@
 # *Favorite* 
 ---
-### food
+### Food
 _Pizza_
 ### Friend
 _Baobao_
