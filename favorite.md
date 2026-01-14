@@ -24,4 +24,4 @@ _Indie and Rock_
   <img src="https://www.icegif.com/wp-content/uploads/2022/01/icegif-982.gif" alt="Funny GIF" width="400">
 </a>
 
-! [hakdog] (https://media.tenor.com/ThqFI5hc8ywAAAAC/five-nights-at-freddys-fnaf.gif)
+![hakdog] (https://media.tenor.com/ThqFI5hc8ywAAAAC/five-nights-at-freddys-fnaf.gif)
